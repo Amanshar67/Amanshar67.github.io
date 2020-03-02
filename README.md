@@ -1,1 +1,0 @@
-# Amanshar67.github.io
